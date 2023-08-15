@@ -1,2 +1,2 @@
 # code
-Da série de coisas aleatórias, mas legais que eu gosto de fazer. 
+Da série: Coisas legais que eu gostei de fazer. :)
